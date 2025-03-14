@@ -95,3 +95,6 @@ Decrypted Message: SecretMsg
 *For any Suggestions
 j.biswas0022@gmail.com* 
 
+**MY INSTAGRAM PASSWORD: PLgf6B@# (Encrypted)**
+*If you get it, You have it*
+
